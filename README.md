@@ -1,4 +1,2 @@
 # aeyvediya
-teruib
-fgbb
- gn
+Sun be bhonklendi k
