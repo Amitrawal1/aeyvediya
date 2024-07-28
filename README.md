@@ -1,2 +1,2 @@
-# aeyvediya
-Sun be bhonklendi k
+# aeyvediy
+Frontend Developer
